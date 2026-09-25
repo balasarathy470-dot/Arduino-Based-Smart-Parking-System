@@ -1,5 +1,3 @@
-WAVE RIDERS
-
 &nbsp;
 
 ![][image1]
